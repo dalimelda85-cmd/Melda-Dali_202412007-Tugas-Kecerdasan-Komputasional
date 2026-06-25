@@ -1,0 +1,1 @@
+# Melda-Dali_202412007-Tugas-Kecerdasan-Komputasional
